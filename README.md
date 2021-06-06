@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @vassilisyannoussis
+- 👀 I’m interested in UX Design and Web/Web-app development!
+- You can reach me at: vassilis.yannoussis@gmail.com
